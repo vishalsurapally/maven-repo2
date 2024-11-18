@@ -24,11 +24,7 @@ Almost Padipoyindhe Pilla
 Manduku Manching Laa
 Almost Padipoyindhi Pilla
 Pilla Pilla
-
-Le Le Le Maza Le Le Le Maza
-Le Le Le Maza Pilla Jilla
-Le Le Le Maza Le Le Le Maza
-Le Le Le Maza Pilla Jilla
+ WELCOME WELCOME WELCOME 
 
 Ni Chutte Thiruguthu
 Karuguthu Ipudu Mari
